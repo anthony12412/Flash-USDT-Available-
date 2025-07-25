@@ -73,6 +73,7 @@ Have questions or need support?
 
 ## [Facebook](https://www.facebook.com/flash.anthony.2025)
 ## [Youtube](https://youtube.com/shorts/yBP6vMAozWQ?si=TeqiC8mRVTlCgRRM)
+## [LinkedIn](https://linkedin.com/in/flash-anthony-543074377)
 
 
 ---
