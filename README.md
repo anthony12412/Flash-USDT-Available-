@@ -11,9 +11,9 @@ Welcome to Transferable Flash USDT – your go-to solution for ultra-fast and lo
 ## [Youtube](https://youtube.com/shorts/yBP6vMAozWQ?si=TeqiC8mRVTlCgRRM)
 ---
 
-## 🌐 Available On
+# 🌐 Available On
 
-Flash USDT is fully compatible with a wide range of popular wallets:
+## Flash USDT is fully compatible with a wide range of popular wallets:
 
 - ✅ Binance  
 - ✅ Trust Wallet  
